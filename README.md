@@ -1,0 +1,1 @@
+# kumarhaneler-neden-kapat-ld-
